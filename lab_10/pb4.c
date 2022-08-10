@@ -1,0 +1,1 @@
+nu am apucat sa salvez problema cand am facut o si acum nu mai am timp sa o refac
